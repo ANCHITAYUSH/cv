@@ -1,1 +1,1 @@
-# This is a CV of Anchit(develop).
+# This is a CV of Anchit.
